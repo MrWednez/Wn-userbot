@@ -1,0 +1,2 @@
+# Wn-userbot
+INI CUMA BAHAN GABUTAN DOANG YGY
